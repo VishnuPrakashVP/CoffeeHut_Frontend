@@ -19,5 +19,5 @@
         - This drink is made up of three equal parts: it's one-third espresso, one-third steamed milk, and one-third milk foam, with the latter being the classic beverage's claim to fame. Though it had been around for centuries prior, the cappuccino didn't begin to make its way across the United States until the 1980s.
         - Price - ₹ 170/- 
 
-
+## Special discounts of 25 percentage off on all orders above ₹100 for loyal users and coffeehut wallet users 
 
