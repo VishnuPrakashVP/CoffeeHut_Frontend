@@ -36,5 +36,5 @@
             - 20 percentage off on all products above ₹100/-
 
 
-* Special Discount for coffehut wallet payment option
+* Special Discount for coffeehut wallet payment option
             - 25 percentage off on all products above ₹100/-                        
